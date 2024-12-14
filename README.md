@@ -1,7 +1,8 @@
 ## <p align="center">  ***Elise***
 </p>
 
-! biggest akeshu enjoyer !  <p align="center"> ![jokergif](https://media1.tenor.com/m/4A9aYa0EIvcAAAAC/persona-5.gif "JokerGif")
+! biggest akeshu enjoyer !  
+<img src="https://i.pinimg.com/736x/bc/03/6d/bc036db231a277c8528a1f892c786496.jpg" width="250">
 
 .
 .
@@ -20,7 +21,7 @@
 </br>
 ### <p align="right"> *UNDER CONTRUCTION*
 
-!  <p align="center"> ![jokergif2](https://tenor.com/view/joker-persona-5-gif-7156099863849143410.gif "JokerGif2")
+!  <p align="center"> ![akeshu](https://i.pinimg.com/736x/d0/7a/a6/d07aa612c11f3561655692a5381e4be2.jpg "akeshu")
 
  *..DAWG I HAVENT DONE HTML SINCE 10TH GRADE...*
 

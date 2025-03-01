@@ -1,7 +1,7 @@
 ## <p align="center">  ***↳ ❝ [Elise] ¡! ❞***
 </p>
 
-*! biggest shuake enjoyer !*  
+*! biggest shuake enjoyer !*  GET OUT OF MY WALLS SHU
 <p align="center"> <img src="https://i.pinimg.com/736x/bc/03/6d/bc036db231a277c8528a1f892c786496.jpg" width="250">
   
 <p align="center">  ˚ ༘ ·˚ 𝙵𝚕𝚒𝚐𝚑𝚝 𝚘𝚏 𝚝𝚑𝚎 𝙲𝚛𝚘𝚠𝚜 ₊˚ˑ

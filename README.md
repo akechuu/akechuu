@@ -1,15 +1,15 @@
 
-<p align="right">‎  [05/08/2025] 
+<p align="right">‎  [04/12/2025] 
 <p align="right"> ɪ'ᴍ ʏᴏᴜʀ ᴄᴇᴍᴇᴛᴇʀʏ ꜱᴡᴇᴇᴛʜᴇᴀʀᴛ
   
 <p align="left">   
 <p align="left">    
-<p align="center"> <img src="https://64.media.tumblr.com/205eddb081f5d392152bead4ab2e8a4b/fc74c2060f903731-bc/s400x600/270ea14fa373fb31a6da39bfdcfcd9018fab8ead.gifv">
+<p align="center"> <img src="https://64.media.tumblr.com/92bb16ec712d28257be94ee4ddfae141/a2e1ea1089fdad77-ed/s250x400/bf2af4226f7bb9df6cb407817814d9182310ba1b.gifv">
 
 
 ⠀⠀
 
-<p align="center"> <img src="https://64.media.tumblr.com/1431e6ae68cba541985371904badebb8/58a72e02830339d0-2c/s400x600/dcc88d1638985293d4f4287f6f2c4bb7ecdb0260.gifv">
+<p align="center"> <img src="https://64.media.tumblr.com/967d2d24703d662b95254ec53987406e/90b5504b31b9aa96-d4/s500x750/d78403ee24e34966ced6c622000ec7ec2d5d5ee9.gifv">
   
 
 <p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
@@ -39,7 +39,7 @@
 <p align="right"> ────୨ৎ────
 <p align="right">
   
-<p align="right"> <img src="https://i.pinimg.com/736x/3f/a8/29/3fa82974760995a80d3ae88db1667f36.jpg" width="300">
+<p align="right"> <img src="https://i.pinimg.com/1200x/eb/bb/85/ebbb85bc1e6104c87cf9e9f34550b0e1.jpg" width="300">
 
 <p align="right">
 <p align="right"> ᶻ 𝗓 𐰁ᶻ 𝗓 𐰁ᶻ 𝗓 𐰁
@@ -48,7 +48,7 @@
   <p align="left">      𓎢𓎠𓎟𓎠𓎡
   <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; 21
   <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; silly
-  <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; bpd.adhd
+  <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; bpd.ocd
   <p align="left">       𓎢𓎠𓎟𓎠𓎡 
 
 
@@ -58,7 +58,7 @@
 
 ### <p align="right"> *TBA*
 
-!  <p align="center"> <img src="https://64.media.tumblr.com/a54f23730bf7c6c2744c399be99d4bfb/ba4757889503a51f-a4/s2048x3072/7177f2dc44d78bbfdb2c37c2c3c4cc46f22f4de9.pnj">
+!  <p align="center"> <img src="https://64.media.tumblr.com/7cb414b9c938fca0a23f4803212d0a93/09b0656ab042c182-94/s540x810/8aabf185f9217fd05f5319b0c9dd0d103f7557d8.gifv">
 
 
 

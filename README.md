@@ -48,7 +48,7 @@
   <p align="left">      𓎢𓎠𓎟𓎠𓎡
   <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; 21
   <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; silly
-  <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; bpd.ocd
+  <p align="left">         ♡ིྀ. ೀ⋆⑅˚ ; bpd.adhd
   <p align="left">       𓎢𓎠𓎟𓎠𓎡 
 
 
